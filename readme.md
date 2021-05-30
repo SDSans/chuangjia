@@ -2,7 +2,7 @@
 <h1>hrhr!</h1>
 <p>それはひどいです！</p>
 <p>太可怕了</p>
-<p>so cute!</p>
+<p>WDNMD</p>
 <a href="https://funnymdzz.github.io/chuangjia/av10388.flv">
     <button>av10388</button>
 </a>
